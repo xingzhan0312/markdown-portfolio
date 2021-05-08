@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+😙 This is an emoji.
+And I want to give you other stuff as well. 👍
